@@ -7,4 +7,6 @@
 7. Anubhuti Jain
 8. iLorah
 9. Himanshi Pahuja
-10. Shaurya Malik
+10.Inaayat Goyal
+11. Ansh Gupta
+12. Shaurya Malik
