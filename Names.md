@@ -9,3 +9,4 @@
 9. Himanshi Pahuja
 10.Inaayat Goyal
 11. Ansh Gupta
+12. Shaurya Malik
