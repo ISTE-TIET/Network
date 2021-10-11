@@ -15,5 +15,5 @@
 15. Mukul Singhal
 16. Anshul Dadhwal
 17. Aryan
-18. Tanmay
-19. Karishma
+18. Karishma
+19. Tanmay
