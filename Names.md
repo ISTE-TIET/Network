@@ -4,7 +4,7 @@
 4. Domendra Sahu
 5. Mayan Jain
 6. Harmanpreet singh
-7. Anubhuti Jain
+7. Anushka Dewangan is here again
 8. iLorah
 9. Himanshi Pahuja
 10. Inaayat Goyal
