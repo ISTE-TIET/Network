@@ -7,6 +7,17 @@
 7. Anushka Dewangan is here again
 8. iLorah
 9. Himanshi Pahuja
-10.Inaayat Goyal
+10. Inaayat Goyal
 11. Ansh Gupta
 12. Shaurya Malik
+13. Anuhska Dewangan
+14. Aniket Sahran
+15. Mukul Singhal
+16. Anshul Dadhwal
+17. Aryan
+18. Karishma
+19. Tanmay
+20. Apoorv Saxena
+21. Hasika Tandon
+22. Jatin Jindal
+23. Anika Saxena
