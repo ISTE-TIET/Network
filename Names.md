@@ -7,7 +7,7 @@
 7. Anushka Dewangan is here again
 8. iLorah
 9. Himanshi Pahuja
-10. Inaayat Goyal
+10. Inaayat Goyal is here again
 11. Ansh Gupta
 12. Shaurya Malik
 13. Anuhska Dewangan
@@ -25,3 +25,4 @@
 25. Sab chutiya hain
 26. timepass
 27. helloooo
+28. Apoorv again
